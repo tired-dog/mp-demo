@@ -1,2 +1,2 @@
 # mp-demo
-mybatis-plus案例
+**详情请看msater分支**
