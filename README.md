@@ -3,4 +3,4 @@
 
 ***
 
-![案例](https://b11et3un53m.feishu.cn/wiki/PsyawI04ei2FQykqfcPcmd7Dnsc#Lz38dQlkcoppgwxXfbacwklwnWb  "官方网站")
+![案例](https://ucc.alicdn.com/ity2wjmgtgweo/developer-article1633044/20241103/89f648a8c2f249e9933fd676c549e372.jpeg?x-oss-process=image/resize,w_1400/format,webp  "官方网站")
